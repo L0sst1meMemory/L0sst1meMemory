@@ -23,7 +23,11 @@
 𓈒 ˚ 𓏻 ‎<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=15&duration=1550&pause=1100&color=FFF3EB&background=888CBD45&width=130&height=25&lines=dice+members+!" alt="Typing SVG" /></a> 。𓄹 <img src="https://komarev.com/ghpvc/?username=l0sst1meMemory&color=b8b5c4&label=...۶ৎ" />۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱<br>
 <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled25_20261028135626.png" width="290" height="10" alt="Description">  <br>
 <a href="https://en.pronouns.page/@kaedehaze"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled26_20261029043316.png" width="100" height="20" alt="Description"></a> <img src="https://file.garden/Z4_uMXj5okOfzfmz/lollipop" width="20" height="20" alt="Description"> <a href="https://colorryournight.straw.page/"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled26_20261029032438.png" width="120" height="25" alt="Description"></a>
-
+</div></a>
+<div id="text" align="center">
+<code><a href="https://x.com/tsunomi030">©</a></code> atabook wip nnghghhh hi - mityakun<br>
+<img src="https://file.garden/Z4_uMXj5okOfzfmz/boded" width="290" height="10" alt="Description">
+  </div>
 <!--
 **L0sst1meMemory/L0sst1meMemory** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
